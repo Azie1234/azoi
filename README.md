@@ -1,2 +1,2 @@
 # akosinatoy
-AMBOT OYY NGANO DILI AKO IYANG PILION
+a
